@@ -1,0 +1,5 @@
+-Oi sou a Ana
+-Estudo no colégio PIO XII
+-para entrar em contato comigo use o email:ana.konzen.pinto@escola.pr.gov.br
+-Meu instagram é ana_luisa_kp
+-Estou aprendendo a fazer joogos
